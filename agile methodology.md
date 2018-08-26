@@ -21,11 +21,33 @@ Corporate culture often puts more weight on forms, procedures, and meetings than
 be inspected at short intervals by users. Work that does not produce real
 value is madness. Working product in short cycles allows early user
 feedback and you can immediately eliminate what is obviously wasteful
-effort. " - (Sutherland, J> (2016) </br>
+effort. " - (Sutherland, JJ (2016) </br>
+### "Hesitation Is Death. Observe, Orient, Decide, Act. 
+Know where you are, assess your options, make a decision, and act!
+### Look Outward for Answers. 
+Complex adaptive systems follow a few simple rules, which they learn from their environment.
+### Great Teams Are. 
+They are cross-functional, autonomous, and empowered, with a transcendent purpose.
+### Don’t Guess. Plan, Do, Check, Act. 
+Plan what you’re going to do. Do it. Check whether it did what you wanted. Act on that and change how you’re
+doing things. Repeat in regular cycles, and, by doing so, achieve continuous improvement.
+### Shu Ha Ri. 
+First, learn the rules and the forms, and once you’ve mastered 
+them, make innovations. Finally, in a heightened state of mastery, discard the
+forms and just be—with all the learning internalized and decisions made
+almost unconsciously." - (Sutherland, JJ (2016) </br>
+
+
+
 "" </br>
+
 "" </br>
+
 "" </br>
+
 "" </br>
+
 "" </br>
+
 "" </br>
-"" </br>
+
